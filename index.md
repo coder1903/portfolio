@@ -6,10 +6,10 @@ Currently you are looking one of the best Architects you can ever seen in you li
 ### **Experience**
 _**RP Project**_ - Junior Architect
 - Most creative & best of best designer
-- Highly motivated :sunglasses:
-- Can work without sleep :zombie_woman:
-- Also can go gym even have no time :sassy_woman:
-- Chef in Pasty :cake:
+- Highly motivated 😎
+- Can work without sleep 🧟‍♀️
+- Also can go gym even have no time 💁‍♀️
+- Chef in Pasty 🍰
 
 _**University Projects**_ 
 - [I passed course from impossible teacher with this project ;)](/project.pdf) 
