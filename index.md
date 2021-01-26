@@ -1,17 +1,18 @@
 ## Elizaveta Meriakri
 ### Mid Level Arcitect
 
-I am one of the perfect Architects you can ever seen :smirk:
+Currently you are looking one of the best Architects you can ever seen in you lifetime :smirk:
 
 ### **Experience**
 _**RP Project**_ - Junior Architect
-- AUTOCAD
-- CAN WORK WITHOUT SLEEP
-- ALSO DO WORKOUT EVEN HAVE NO TIME :woman_dancing:
-
+- Most creative & best of best designer
+- Highly motivated :sunglasses:
+- Can work without sleep :zombie_woman:
+- Also can go gym even have no time :sassy_woman:
+- Chef in Pasty :cake:
 
 _**University Projects**_ 
-- [You can see my project from this link](/project.pdf) 
+- [I passed course from impossible teacher with this project](/project.pdf) 
 
 
 ![Image](/photo.jpg)
