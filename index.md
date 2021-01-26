@@ -6,11 +6,11 @@ You can use the [editor on GitHub](https://github.com/coder1903/portfolio/edit/g
 ### **Experience**
 _**RP Project**_ - Junior Architect
 - AUTOCAD
-- HAND MODELLING
+- HAND MODELLING \\
 
 
-_University Projects_
-[You can see my project here](/project.pdf) and 
+_**University Projects**_
+[You can see my project from this link](/project.pdf) and 
 
 
 ![Image](/photo.jpg)
