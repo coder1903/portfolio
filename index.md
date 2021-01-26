@@ -1,7 +1,7 @@
 ## Elizaveta Meriakri
 ### Mid Level Arcitect
 
-Currently you are looking one of the best Architect you can ever seen in you lifetime :smirk:
+Currently you are looking one of the best Architect you can ever seen in you lifetime 😏
 
 ### **Experience**
 _**RP Project**_ - Junior Architect
