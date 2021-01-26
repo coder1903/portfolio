@@ -6,10 +6,10 @@ You can use the [editor on GitHub](https://github.com/coder1903/portfolio/edit/g
 ### **Experience**
 _**RP Project**_ - Junior Architect
 - AUTOCAD
-- HAND MODELLING \\
+- HAND MODELLING 
 
 
-_**University Projects**_
+_**University Projects**_ \
 [You can see my project from this link](/project.pdf) and 
 
 
