@@ -7,10 +7,10 @@ I am one of the perfect Architects you can ever seen :smirk:
 _**RP Project**_ - Junior Architect
 - AUTOCAD
 - CAN WORK WITHOUT SLEEP
-- 
+- ALSO DO WORKOUT EVEN HAVE NO TIME :woman_dancing:
 
 
-_**University Projects**_ \
+_**University Projects**_ 
 - [You can see my project from this link](/project.pdf) 
 
 
