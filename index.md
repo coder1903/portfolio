@@ -15,7 +15,7 @@ _**University Projects**_
 - [I passed course from impossible teacher with this project](/project.pdf) 
 
 
-![Image](/photo.jpg)
-
 ### Contact
 meriakri@gmail.com
+
+![Image](/photo.jpg)
