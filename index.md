@@ -12,7 +12,7 @@ _**RP Project**_ - Junior Architect
 - Chef in Pasty :cake:
 
 _**University Projects**_ 
-- [I passed course from impossible teacher with this project](/project.pdf) 
+- [I passed course from impossible teacher with this project ;)](/project.pdf) 
 
 
 ### Contact
